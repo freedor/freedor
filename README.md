@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @freedor,
+- I'm trying to learn coding and decided to pick the challenge starting from...
+- Python!
+- I'm looking for newbie eager to improve just like I am,
+- don't be scared and contact me, together we're better!
